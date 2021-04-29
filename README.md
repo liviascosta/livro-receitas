@@ -3,6 +3,7 @@
 Olá! Bem vindo fo meu livro de recitas :hand:
 
 - Strogonoff
+- Bolo de Cenoura
 
   
 
